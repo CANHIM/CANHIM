@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CANHIM
 - 👀 I’m interested in Ethical Hacking
-- 🌱 I’m currently learning Coding and Programming
+- 🌱 I’m currently learning Everything I can learn
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me mrxxanonymity@protonmail.com
 
